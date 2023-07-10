@@ -1,1 +1,1 @@
-Main interest : Problem solving
+But idk i could be wrong.
