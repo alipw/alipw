@@ -10,5 +10,5 @@ I love elegance and i love working solutions, both matter and the art is knowing
 I do not pretend to know what i do not, and i am comfortable being wrong but not staying wrong.
 
 
-contact me if you want a cofounder like me at: alifwide.workmail@gmail.com
+contact if you think we can make a great team together at: alifwide.workmail@gmail.com
 ```
